@@ -1,0 +1,1 @@
+# takip-etmeyenleri-bulma-scripti
